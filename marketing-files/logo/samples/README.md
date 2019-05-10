@@ -1,1 +1,1 @@
-A place to host a logo.
+Draft logo's.
